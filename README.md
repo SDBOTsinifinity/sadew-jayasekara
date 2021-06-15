@@ -1,2 +1,3 @@
-# sadew-jayasekara
- 🚶‍ &amp;nbsp; I live in : Sri Lanka 🇱🇰 
+# # Hey, I am sadew-jayasekara
+
+<img src="https://telegra.ph/file/f9477df48d4bf226f110b.jpg"
